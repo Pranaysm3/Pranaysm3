@@ -27,4 +27,4 @@
 ---
 
 🌐 **Portfolio**: [Check out my work](https://yourportfolio.com)  
-💌 **Connect**: [LinkedIn](https://linkedin.com/in/yourprofile)
+💌 **Connect**: [LinkedIn](https://www.linkedin.com/in/pranay-meshram-7553b0261)
